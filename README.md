@@ -1,1 +1,0 @@
-# Adm-painel-riqulme
